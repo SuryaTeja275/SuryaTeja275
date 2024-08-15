@@ -6,8 +6,7 @@
 - 💬 Ask me about **AWS**
 
 - 📫 How to reach me **mssteja2005@gmail.com**
-  
--  📫 How to reach me **sai surya teja mallemkondu**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
